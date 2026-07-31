@@ -1,19 +1,43 @@
-# ABOUT ME
+<h1 align="center">✦ B.E.N ✦</h1>
 
-These are just the more important things about me, there's more on my main strawpage!! Go check it out! Thank you!!!!
-
----
-
-If we are talking you have triggers of any kind, or just want me to remember something, PLEASE LET ME KNOW EARLY! I'll either add it to your friend note or pin the message so I won't forget.
+<p align="center">
+Welcome to my GitHub! :D
+</p>
 
 ---
 
-I also talk a lot, send images, will be active and random. If I do something you're uncomfortable with, lmk and I'll stop!!
+## 🌱 About Me
+
+- Buzz / Ben
+- He/Him
+- Minor
+- I love Ben Drowned.
 
 ---
 
-Also yes,,, I know how to code I am just lazy
+## 💬 Please Read
+
+- Tell me about triggers early.
+- Let me know if I make you uncomfortable.
+- I won't be upset if you ask me to stop!!
 
 ---
 
-Finally, I allow INSPO!! NOT COPIES!! Feel free to take inspo i do not mind!
+## 🎨 Pony Town
+
+✔ Inspiration is okay!!
+
+✘ Please don't directly copy my work.
+
+---
+
+## 🎮 Interests
+
+- Creepypasta
+- Older horror movies
+- Music
+- Art
+
+---
+
+Thanks for stopping by! 💚
