@@ -6,7 +6,7 @@ Welcome to my GitHub! :D
 
 ---
 
-## 🌱 About Me
+## ♯ ⋮  𝄞 About me ༉  .ᐟ ★
 
 - Buzz / Ben
 - He/Him
@@ -15,7 +15,7 @@ Welcome to my GitHub! :D
 
 ---
 
-## 💬 Please Read
+## ♯ ⋮  𝄞 Important!! ༉  .ᐟ ★
 
 - Tell me about triggers early.
 - Let me know if I make you uncomfortable.
@@ -23,7 +23,7 @@ Welcome to my GitHub! :D
 
 ---
 
-## 🎨 Pony Town
+## ♯ ⋮  𝄞 Pony Town ༉  .ᐟ ★
 
 ✔ Inspiration is okay!!
 
@@ -31,7 +31,7 @@ Welcome to my GitHub! :D
 
 ---
 
-## 🎮 Interests
+## ♯ ⋮  𝄞 Interests!! ༉  .ᐟ ★
 
 - Creepypasta
 - Older horror movies
