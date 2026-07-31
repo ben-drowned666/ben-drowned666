@@ -1,6 +1,6 @@
 # ABOUT ME
 
-These are just the more important things, there's more about me on my main strawpage!! Go check it out! Thank you!!!!
+These are just the more important things about me, there's more on my main strawpage!! Go check it out! Thank you!!!!
 
 ---
 
@@ -8,7 +8,7 @@ If we are talking you have triggers of any kind, or just want me to remember som
 
 ---
 
-I also talk a lot, send images, will be active and random, and can be sort of freaky at times! If I do something you're uncomfortable with, lmk and I'll stop!!
+I also talk a lot, send images, will be active and random. If I do something you're uncomfortable with, lmk and I'll stop!!
 
 ---
 
