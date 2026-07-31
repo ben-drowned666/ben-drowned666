@@ -10,8 +10,8 @@ Welcome to my GitHub! :D
 
 - Buzz / Ben
 - He/Him
-- Minor
-- I love Ben Drowned.
+- Minor {June 10!!}
+- I love Ben Drowned guys..
 
 ---
 
@@ -27,7 +27,7 @@ Welcome to my GitHub! :D
 
 ✔ Inspiration is okay!!
 
-✘ Please don't directly copy my work.
+✘ Please don't directly copy my skins!
 
 ---
 
