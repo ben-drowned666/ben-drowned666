@@ -8,9 +8,9 @@ Welcome to my GitHub! :D
 
 ## ♯ ⋮  𝄞 About me ༉  .ᐟ ★
 
-- Buzz / Ben
+- Buzz/Ben
 - He/Him
-- Minor {June 10!!}
+- Minor (June 10!!)
 - I love Ben Drowned guys..
 
 ---
@@ -19,7 +19,7 @@ Welcome to my GitHub! :D
 
 - Tell me about triggers early.
 - Let me know if I make you uncomfortable.
-- I won't be upset if you ask me to stop!!
+- I won't be upset if you ask me to stop doing/talking about something!!
 
 ---
 
